@@ -1,2 +1,2 @@
 # cca-yegar-sahaduta-osmo
-web asal jadi
+# web asal jadi 👌👌
